@@ -1,0 +1,1 @@
+So you want to join the Trasure trove minecraft server, Well you in luck because i have the solution for you now matter you device!
